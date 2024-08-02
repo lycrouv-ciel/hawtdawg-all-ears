@@ -20,4 +20,4 @@ In the meantime, why not meet up at the dog park to get a whiff of your new frie
 
 ## Videos are far more exciting
 
-Put some videos
+Put some videos and make sure your precious memories are tracked for a long time
